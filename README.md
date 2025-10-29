@@ -1,1 +1,1 @@
-Jubliant-Journey
+Credit Score Project
